@@ -1,1 +1,0 @@
-# Proposta SI Coleta de Lixo 
